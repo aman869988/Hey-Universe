@@ -1,2 +1,2 @@
 # Hey-Universe
-How are you doing?
+How are you?
